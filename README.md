@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to regret my decisions in life
 - 💞️ I’m looking to collaborate on keeping my job so i can afford my living costs
 - 📫 How to reach me: you dont
-- 😄 Pronouns: idk
+- 😄 Pronouns: idk, just roll some dice
 - ⚡ Fun fact: i cant feel my legs since i woke up today
 
 <!---
